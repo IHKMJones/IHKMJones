@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @IHKMJones
-- 👀 I’m interested in ...Hirng
+- 👀 I’m interested in ...Hiring
 - 🌱 I’m currently learning ...HR
 - 💞️ I’m looking to collaborate on ...Opportunities
 - 📫 How to reach me ...mjones@idexcel.com
